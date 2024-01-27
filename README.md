@@ -5,7 +5,7 @@
 Here are some ideas to get you started:
 
 - 🔭 I’m currently working on different projects
-- 🌱 I’m currently learning Cloud Engineering
+- 🌱 I’m currently learning DevOps
 - 👯 I’m looking to collaborate on any Python and Node Js Projects
 - 🤔 I’m looking for help with a project sometime in the future i guess
 - 💬 Ask me about anything
