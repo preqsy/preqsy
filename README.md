@@ -11,5 +11,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about anything
 - 📫 How to reach me: obbyprecious24@gmail.com, 07032937596
 - 😄 Pronouns: He
-- ⚡ Fun fact: i code when i'm happy, sad, dizzy, bored, frustrated, angry. I code everytime
+- ⚡ Fun fact: i code when i'm happy, sad, dizzy, bored, frustrated, angry. I code everytime ✌️
 
